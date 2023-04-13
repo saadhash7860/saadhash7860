@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Data Science**
 
-- 📫 How to reach me **saadhashmi32@gmail.com**
+- 📫 How to reach me **saadcan184@gmail.com**
 
 
 <p align="left">
